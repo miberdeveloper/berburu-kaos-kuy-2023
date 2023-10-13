@@ -7,3 +7,5 @@
 - 12 Oktober 2023 in PNEP
 
 <img src="ss.png">
+
+- update 13 Oktober 2023 in kantor
